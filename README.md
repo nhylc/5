@@ -3,9 +3,9 @@
 
 ## 🌐 访问地址
 
-地址1: https://nh6655.vip
+地址1: https://nh390.top
  
-地址2: https://nh6644.vip
+地址2: https://nh797.top
  
 TG机器人: https://t.me/NHYLCBOT
  
